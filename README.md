@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on web projects, open-source contributions, and tech-for-good initiatives
 
-📫 How to reach me: nitindwivedidev@gmail.com
+📫 How to reach me: nitindwivedi.dev@gmail.com
 
 😄 Pronouns: He/Him
 
